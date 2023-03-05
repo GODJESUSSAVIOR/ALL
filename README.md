@@ -14,15 +14,13 @@ https://minds.com/GODJESUSSAVIOR
 
 https://gab.com/GODJESUSSAVIOR
 
-https://mewe.com/i/GODJESUSSAVI0R
-
-https://mastodon.social/@GODJESUSSAVIOR
-
 https://github.com/GODJESUSSAVIOR
 
 https://parler.com/GODJESUSSAVIOR
 
 https://freetalk.app/GODJESUSSAVIOR
+
+https://mastodon.social/@GODJESUSSAVIOR
 
 email = GODJESUSSAVIOR@mail.com
 

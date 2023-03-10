@@ -8,13 +8,13 @@ GOD JESUS CHRIST LORD OF LORDS
 
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
 
+https://github.com/GODJESUSSAVIOR
+
 https://telegram.me/GODJESUSSAVIOR
 
 https://minds.com/GODJESUSSAVIOR
 
 https://gab.com/GODJESUSSAVIOR
-
-https://github.com/GODJESUSSAVIOR
 
 https://parler.com/GODJESUSSAVIOR
 
@@ -22,9 +22,15 @@ https://freetalk.app/GODJESUSSAVIOR
 
 https://mastodon.social/@GODJESUSSAVIOR
 
+https://twitter.com/GODJESUSSAV1OR
+
+https://youtube.com/@GODJESUSSAVIOR
+
+https://archive.org/details/@godjesussavior
+
 email = GODJESUSSAVIOR@mail.com
 
-email = GODJESUSSAV1OR@proton.me
+email = GODJESUSSAVIOR@hotmail.com
 
 email = GODJESUSSAVIORkingofkings@gmail.com
 

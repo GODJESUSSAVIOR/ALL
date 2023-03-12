@@ -3,10 +3,10 @@ GOD JESUS MESSIAH GOD OF GODS
 GOD JESUS SAVIOR KING OF KINGS
 GOD JESUS CHRIST LORD OF LORDS
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+https://github.com/GODJESUSSAVIOR
 https://telegram.me/GODJESUSSAVIOR
 https://minds.com/GODJESUSSAVIOR
 https://gab.com/GODJESUSSAVIOR
-https://github.com/GODJESUSSAVIOR
 https://parler.com/GODJESUSSAVIOR
 https://freetalk.app/GODJESUSSAVIOR
 https://mastodon.social/@GODJESUSSAVIOR

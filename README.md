@@ -3,18 +3,16 @@ GOD JESUS MESSIAH GOD OF GODS
 GOD JESUS SAVIOR KING OF KINGS
 GOD JESUS CHRIST LORD OF LORDS
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-https://github.com/GODJESUSSAVIOR
 https://telegram.me/GODJESUSSAVIOR
 https://minds.com/GODJESUSSAVIOR
 https://gab.com/GODJESUSSAVIOR
+https://github.com/GODJESUSSAVIOR
 https://parler.com/GODJESUSSAVIOR
 https://freetalk.app/GODJESUSSAVIOR
 https://mastodon.social/@GODJESUSSAVIOR
 https://GODJESUSSAVIOR.webnode.page
 https://youtube.com/@GODJESUSSAVIOR
 https://archive.org/details/@godjesussavior
-email = GODJESUSSAVIOR@mail.com
-email = GODJESUSSAVIOR@hotmail.com
 email = GODJESUSSAVIORkingofkings@gmail.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
 https://biblegateway.com
@@ -59,6 +57,7 @@ https://youtube.com/@Daudtony
 https://youtube.com/@miracletvs
 https://youtube.com/@jeniferveronica
 https://youtube.com/@Jonathan_KBK
+https://youtube.com/@StevenAgustinus
 https://youtube.com/@dreamayanes7934
 https://youtube.com/@kesaksiandunia9633
 https://youtube.com/@nicjuechanneltv4707
@@ -79,3 +78,4 @@ https://andreyredwhite.blogspot.com
 https://kesaksianpewahyuan.blogspot.com
 https://kesaksianmenguatkan.blogspot.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E ( = https://tiny.cc/GJS )

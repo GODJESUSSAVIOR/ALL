@@ -22,6 +22,7 @@ https://seekfreedom.org
 https://godreports.com
 https://persecution.org
 https://opendoors.org
+https://rignation.org
 https://jmkusa.com
 https://acts17.com
 https://dohi.org

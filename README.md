@@ -170,6 +170,6 @@ andreyredwhite.blogspot.com
 kesaksianpewahyuan.blogspot.com
 kesaksianmenguatkan.blogspot.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr
 ( tiny.cc/GJS )
 docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
+1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr

@@ -6,12 +6,12 @@ GOD JESUS CHRIST LORD OF LORDS
 telegram.me/GODJESUSSAVI0R
 minds.com/GODJESUSSAVIOR
 gab.com/GODJESUSSAVIOR
-github.com/GODJESUSSAVIOR
 locals.com/member/GODJESUSSAVIOR
 mastodon.social/@GODJESUSSAVIOR
 patreon.com/GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
 youtube.com/@GODJESUSSAVIOR
+github.com/GODJESUSSAVIOR
 archive.org/details/@godjesussavior
 Links = GODJESUSSAVIOR.webnode.page
 Email = GODJESUSSAVIORkingofkings@gmail.com

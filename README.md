@@ -3,11 +3,11 @@ GOD JESUS MESSIAH GOD OF GODS
 GOD JESUS SAVIOR KING OF KINGS
 GOD JESUS CHRIST LORD OF LORDS
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+truthsocial.com/@GODJESUSSAVIOR
 telegram.me/GODJESUSSAVI0R
 minds.com/GODJESUSSAVIOR
 gab.com/GODJESUSSAVIOR
 locals.com/member/GODJESUSSAVIOR
-mastodon.social/@GODJESUSSAVIOR
 patreon.com/GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
 youtube.com/@GODJESUSSAVIOR
@@ -19,6 +19,7 @@ Email = GODJESUSSAVIORkingofkings@gmail.com
 biblegateway.com
 tlc-messages.com
 jesusministries.org
+torchofchrist.com
 seekfreedom.org
 godreports.com
 persecution.org
@@ -101,75 +102,6 @@ andreyredwhite.blogspot.com
 kesaksianpewahyuan.blogspot.com
 kesaksianmenguatkan.blogspot.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr
-( tiny.cc/GJS )
-docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
-i24news.tv
-ecfa.org
-ob.org
-dohi.org
-ywam.org
-csw.org.uk
-csi-usa.org
-jmkusa.com
-chinaaid.org
-cmiusca.org
-bitterwinter.org
-julie-lopez.com
-jewishvoice.org
-johnramirez.org
-oneforisrael.org
-barnabasaid.org
-jewsforjesus.org
-eevangelize.com
-vomcanada.com
-persecution.com
-churchinchains.ie
-steadfastglobal.org
-riversapostolic.com
-adfinternational.org
-jubileecampaign.org
-morningstarnews.org
-releaseinternational.org
-unitedbiblesocieties.org
-www1.cbn.com/cbnnews
-youtube.com/@angeltvsss
-youtube.com/@domniclinda1
-youtube.com/@CBNnewsonline
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-alkitab.me
-tiny.cc/EvYusakTjiptoP
-tiny.cc/EvYusakTjiptoPurnomo
-tiny.cc/EvDrgYusakTjiptoPurnomo
-youtube.com/@bahteramedianetwork
-youtube.com/@MediaCreativeShekinah
-youtube.com/@SionMediaMinistry
-youtube.com/@AoCMedia
-youtube.com/@Daudtony
-youtube.com/@miracletvs
-youtube.com/@jeniferveronica
-youtube.com/@Jonathan_KBK
-youtube.com/@StevenAgustinus
-youtube.com/@dreamayanes7934
-youtube.com/@kesaksiandunia9633
-youtube.com/@nicjuechanneltv4707
-youtube.com/@generasiyosuajakarta
-youtube.com/@restoreglobalmissions1046
-youtube.com/@kesaksianrohanikristen1215
-youtube.com/@kabarbaikpondanluwuk2733
-youtube.com/@mangarapanjaitan3958
-youtube.com/@TERANGKEMULIAAN
-joshuaivanministries.blogspot.com
-jurnalakhirzaman.blogspot.com
-yehudaministry.blogspot.com
-manministri.blogspot.com
-pedson.blogspot.com
-kesaksian-life.blogspot.com
-mannadelivery.blogspot.com
-andreyredwhite.blogspot.com
-kesaksianpewahyuan.blogspot.com
-kesaksianmenguatkan.blogspot.com
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
-( tiny.cc/GJS )
-1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr
+= docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
+= tiny.cc/GJS
+= 1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr
